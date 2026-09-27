@@ -1,1 +1,2 @@
-# susah
+# BANGCATS BOT - 24/7 ONLINE
+Bot WA by BANGCATS
